@@ -2,7 +2,7 @@
 - 👀 I’m interested in many things. Electronics is a big one, anything with electricity involed, I find fascinating.
 - 🌱 I’m currently learning as much as I can to eventully do my own thing.
 - 💞️ I’m looking to collaborate on as many projects as i can.
-- 📫 How to reach me, hmmm... ill keep you posted.  
+- 📫 How to reach me, hmmm... here I guess.  
 - ⚡ Fun fact:WE ARE ONE!
 <!---
 Hello-HighBorn/Hello-HighBorn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
